@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **imneerajkumar23@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/11Zhy66Vcb8Sj__jHvfNIL3bAdPqgZoC-/view?usp=sharing](https://drive.google.com/file/d/11Zhy66Vcb8Sj__jHvfNIL3bAdPqgZoC-/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1bOZHyg9wx_-4SZbefZke1FBfufLFNn9k/view?usp=sharing](https://drive.google.com/file/d/1bOZHyg9wx_-4SZbefZke1FBfufLFNn9k/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
